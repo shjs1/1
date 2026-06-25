@@ -8,4 +8,4 @@
 
 回家的路：
 
-方法一：收藏深夜解说官方最新发布地址https://github.com/avhub-fun/dz
+方法一：收藏深夜解说官方最新发布地址[https://github.com/avhub-fun/dz](https://github.com/shjs1/1)
